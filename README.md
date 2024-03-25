@@ -1,5 +1,5 @@
 ```
-President of Pipekin (the Roblox group)
+Chairman of Pipekin (the Roblox group)
 Running the Faceplant Minecraft Server
 🁕 🀺 🁂 🁉 🁋
 ● Timezone: PST preferred
